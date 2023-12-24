@@ -1,2 +1,2 @@
 # author_ber7
-stayed in Jakarta, waiting for reply.
+stayed in Kuala Lumpur, waiting for reply.
