@@ -1,4 +1,1 @@
-70-80
-Serenti Hotel Saipan
-
-1
+After leave Saipan, to Kuala Lumpur.
