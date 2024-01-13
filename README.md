@@ -1,1 +1,2 @@
-After leave Saipan, to Kuala Lumpur.
+to Kuala Lumpur.
+
