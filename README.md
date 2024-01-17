@@ -1,2 +1,2 @@
-to Kuala Lumpur.
+apply minisymposia Korea
 
