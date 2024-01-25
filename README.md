@@ -1,1 +1,1 @@
-resend visiting student researcher 
+resend visiting student researcher, J-1
