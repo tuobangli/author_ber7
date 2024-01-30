@@ -1,1 +1,1 @@
-adding CV and statement of purpose 
+Already sent, waiting for reply.
