@@ -1,3 +1,1 @@
-already resent for Raulet, waiting for reply
-
-10
+adding CV and statement of purpose 
