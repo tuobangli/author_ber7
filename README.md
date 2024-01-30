@@ -1,3 +1,2 @@
-already resent for Raulet, waiting for reply
+resent for Raulet
 
-20
