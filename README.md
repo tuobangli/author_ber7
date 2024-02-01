@@ -1,3 +1,3 @@
-already sent to Raulet, waiting for reply
+Resent to Raulet.
 
-4
+9
