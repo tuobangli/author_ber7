@@ -1,1 +1,1 @@
-Already sent, waiting for reply.
+resent to Raulet
