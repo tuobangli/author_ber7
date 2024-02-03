@@ -1,3 +1,5 @@
-Already sent to Raulet, waiting for reply
+Resent to Raulet, adding video introductions.
 
-3
+
+
+6
