@@ -1,4 +1,4 @@
-Resent to Raulet, adding video introductions.
+Resent to Raulet.
 
 
 
